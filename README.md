@@ -1,0 +1,1 @@
+# AmandaMeisyahPutri_uts_2209010222
